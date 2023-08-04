@@ -1,1 +1,1 @@
-I am striving
+I am here to stay
